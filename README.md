@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: debeeokonkwo@gmail.com
 - ⚡ Fun fact: I am a Digital Artist
--->
